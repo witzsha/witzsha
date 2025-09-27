@@ -17,7 +17,7 @@
 
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
-<br><br>
+<br>
 
 
 <p align="center">. Please call me Witzsha/Sha .</p>
@@ -31,7 +31,7 @@
 </p>
 
 
-<br><br>
+<br>
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
 <p align="center">╭︵‿୨ ᴏɴᴄᴇ ʏᴏᴜ ɢɪᴠᴇ ʜɪᴍ ᴇᴠᴇʀʏᴛʜɪɴɢ...</p>
@@ -42,7 +42,7 @@
 
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
-<br><br>
+<br>
 
 <p align="center">
   Im an artist, bone collector and a professional vanderbell shipper. Really into rdr2 now, but my other interests include: Don't Starve Together, Batman Arkham, Gotham and Transformers. If youre into any of that I'd be more than happy to interact with you.<br>
@@ -56,7 +56,7 @@
   If you dont know whats wrong with Ollie, or you dont know who he is at all, please check out this site:(https://ollie59845958.straw.page/).
 </p>
 
-<br><br>
+<br>
 
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
