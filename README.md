@@ -30,6 +30,8 @@
   Feel free to c+h. As long as you're not covering me I dont have a problem with that.
 </p>
 
+<p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
+
 <br><br>
 
 <p align="center">╭︵‿୨ ᴏɴᴄᴇ ʏᴏᴜ ɢɪᴠᴇ ʜɪᴍ ᴇᴠᴇʀʏᴛʜɪɴɢ...</p>
@@ -37,6 +39,8 @@
   <img src="https://i.postimg.cc/HkJjJ2cF/hahaha.png" width="600" height="250">
 </p>
 <p align="center">...ᴡɪʟʟ ʜᴇ ꜱᴛɪʟʟ ᴡᴀɴᴛ ʏᴏᴜ? ୧‿︵╮</p>
+
+<p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
 <br><br>
 
