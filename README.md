@@ -46,7 +46,7 @@
 
 <p align="center">
   Im an artist, bone collector and a professional vanderbell shipper. Really into rdr2 now, but my other interests include: Don't Starve Together, Batman Arkham, Gotham and Transformers. If youre into any of that I'd be more than happy to interact with you.<br>
-  Please keep in mind that I am mentally ill and seriously paranoid. Because of that I tend to isolate and Im not really talkative unless I get to know you better.
+  Please keep in mind that I am mentally ill and seriously paranoid. Because of that I tend to isolate myself from time to time.
 </p>
 
 <p align="center">𓆩♱𓆪</p>
