@@ -26,7 +26,7 @@
 
 <p align="center">
   Public chat off, feel free to interact in whispers.<br>
-  If theres "no response" in my nick - I wont respond. It's not personal, Im just tired, busy or not in the mood to talk. This does not apply to my close friends.<br>
+  If theres "no response" in my name - I wont respond. It's not personal, Im just tired, busy or not in the mood to talk. This does not apply to my close friends.<br>
   Feel free to c+h. As long as you're not covering me I dont have a problem with that.
 </p>
 
