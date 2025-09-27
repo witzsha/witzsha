@@ -34,7 +34,7 @@
 <br>
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
-<p align="center">╭︵‿୨ ᴏɴᴄᴇ ʏᴏᴜ ɢɪᴠᴇ ʜɪᴍ ᴇᴠᴇʀʏᴛʜɪɴɢ...</p>
+<p align="center">╭︵‿୨ ᴏɴᴄᴇ ʏᴏᴜ ɢɪᴠᴇ ʜɪᴍ ᴀʟʟ ʏᴏᴜ'ᴠᴇ ɢᴏᴛ...</p>
 <p align="center">
   <img src="https://i.postimg.cc/MKK47Qrz/hahaha.png" width="600" height="250">
 </p>
