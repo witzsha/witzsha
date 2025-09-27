@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-  _" Your worst sin is that you have destroyed and betrayed yourself for nothing "_
+  " ʏᴏᴜʀ ᴡᴏʀꜱᴛ ꜱɪɴ ɪꜱ ᴛʜᴀᴛ ʏᴏᴜ ʜᴀᴠᴇ ᴅᴇꜱᴛʀᴏʏᴇᴅ ᴀɴᴅ ʙᴇᴛʀᴀʏᴇᴅ ʏᴏᴜʀꜱᴇʟꜰ ꜰᴏʀ ɴᴏᴛʜɪɴɢ "
 </p>
 
 <br><br>
@@ -20,8 +20,8 @@
 
 <br><br>
 
-<p align="center">**. Please call me Witzsha/Sha .**</p>
-<p align="center">_17 | she/her | pl/eng_</p>
+<p align="center">. Please call me Witzsha/Sha .</p>
+<p align="center">17 | she/her | pl/eng</p>
 <p align="center">𓆩♱𓆪</p>
 
 <p align="center">
@@ -59,11 +59,11 @@
 <!-- Kolejne zdjęcie zmienione -->
 <p align="center">
   . . . . ╰──╮
-  <img src="https://i.postimg.cc/85bC8X9F/opopop.png" width="900" height="385" style="vertical-align:middle;">
+  <img src="https://i.postimg.cc/85bC8X9F/opopop.png" width="166" height="69" style="vertical-align:middle;">
   ╭──╯ . . . .
 </p>
 
-<p align="center">_"You were destined for me. Perhaps as a punishment."_</p>
+<p align="center">" ʏᴏᴜ ᴡᴇʀᴇ ᴅᴇꜱᴛɪɴᴇᴅ ꜰᴏʀ ᴍᴇ. ᴘᴇʀʜᴀᴘꜱ ᴀꜱ ᴀ ᴘᴜɴɪꜱʜᴍᴇɴᴛ "</p>
 
 <!-- Ostatnie zdjęcie -->
 <p align="center">
