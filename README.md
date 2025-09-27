@@ -1,5 +1,5 @@
 <img src="https://i.postimg.cc/C5k156nv/rarara.png" 
-     width="866" 
-     height="487">
+     width="1242" 
+     height="520">
 
 
