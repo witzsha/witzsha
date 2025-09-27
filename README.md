@@ -1,5 +1,5 @@
 
-<div style="text-align:center;">
+<center>
 
   <!-- Pierwsze zdjęcie 2484x1040 pomniejszone 2x -->
   <img src="https://i.postimg.cc/C5k156nv/rarara.png" width="1242" height="520"><br>
@@ -58,10 +58,10 @@
 
   <p>─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
-  <!-- Kolejne zdjęcie 2428x1040 pomniejszone 15x z ozdobami -->
+  <!-- Kolejne zdjęcie 2428x1040 pomniejszone 15x z ozdobami, zmienione zdjęcie -->
   <p>
     . . . . ╰──╮
-    <img src="https://i.postimg.cc/C5k156nv/rarara.png" width="162" height="69" style="vertical-align:middle;">
+    <img src="https://i.postimg.cc/85bC8X9F/opopop.png" width="162" height="69" style="vertical-align:middle;">
     ╭──╯ . . . .
   </p>
 
@@ -72,5 +72,4 @@
   <!-- Ostatnie zdjęcie 2484x1040 pomniejszone 2x -->
   <img src="https://i.postimg.cc/qR5hz5B2/rrrrr.png" width="1242" height="520">
 
-
-
+</center>
