@@ -36,7 +36,7 @@
 
 <p align="center">╭︵‿୨ ᴏɴᴄᴇ ʏᴏᴜ ɢɪᴠᴇ ʜɪᴍ ᴇᴠᴇʀʏᴛʜɪɴɢ...</p>
 <p align="center">
-  <img src="https://i.postimg.cc/HkJjJ2cF/hahaha.png" width="600" height="250">
+  <img src="https://i.postimg.cc/MKK47Qrz/hahaha.png" width="600" height="250">
 </p>
 <p align="center">...ᴡɪʟʟ ʜᴇ ꜱᴛɪʟʟ ᴡᴀɴᴛ ʏᴏᴜ? ୧‿︵╮</p>
 
