@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://i.postimg.cc/C5k156nv/rarara.png" width="900" height="375">
+  <img src="https://i.postimg.cc/C5k156nv/rarara.png" width="600" height="250">
 </p>
 
 <p align="center">
@@ -71,5 +71,5 @@
 
 <!-- Ostatnie zdjęcie -->
 <p align="center">
-  <img src="https://i.postimg.cc/qR5hz5B2/rrrrr.png" width="900" height="375">
+  <img src="https://i.postimg.cc/qR5hz5B2/rrrrr.png" width="600" height="250">
 </p>
