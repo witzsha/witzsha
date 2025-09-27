@@ -1,4 +1,4 @@
-<!-- Pierwsze zdjęcie pomniejszone -->
+
 <p align="center">
   <img src="https://i.postimg.cc/C5k156nv/rarara.png" width="900" height="375">
 </p>
@@ -9,7 +9,7 @@
 
 <br><br>
 
-<!-- Drugie zdjęcie powiększone -->
+
 <p align="center">
   . . . . ╰──╮
   <img src="https://i.postimg.cc/fy9kYdxB/image0.png" width="144" height="144" style="vertical-align:middle;">
@@ -30,9 +30,9 @@
   Feel free to c+h. As long as you're not covering me I dont have a problem with that.
 </p>
 
-<p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
 <br><br>
+<p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
 <p align="center">╭︵‿୨ ᴏɴᴄᴇ ʏᴏᴜ ɢɪᴠᴇ ʜɪᴍ ᴇᴠᴇʀʏᴛʜɪɴɢ...</p>
 <p align="center">
