@@ -53,7 +53,7 @@
 <p align="center">
   People under the age of 15, countryhumans fandom and overall weirdos please do not interact.<br>
   Do not talk to me if you're friends with Ollie(https://github.com/ihopemyabsencehauntsyou), ESPECIALLY if you know about the things he has done. By ignoring that, youre showing him and people his kind that his actions don't have consequences. You're encouraging this type of behaviour and giving people like him a silent agreement to continue doing whatever they want to. This makes you a part of a problem.<br>
-  If you dont know whats my problem with Ollie, or you dont know who he is at all, please check out this site:(https://ollie59845958.straw.page/).
+  If you dont know whats wrong with Ollie, or you dont know who he is at all, please check out this site:(https://ollie59845958.straw.page/).
 </p>
 
 <br><br>
