@@ -1,19 +1,19 @@
 
 <!-- Pierwsze zdjęcie -->
-<p align="center">
+<center>
   <img src="https://i.postimg.cc/C5k156nv/rarara.png" width="900" height="375">
-</p>
+</center>
 
 <center>_" Your worst sin is that you have destroyed and betrayed yourself for nothing "_</center>
 
 <br><br>
 
 <!-- Drugie zdjęcie -->
-<p align="center">
+<center>
   . . . . ╰──╮
   <img src="https://i.postimg.cc/fy9kYdxB/image0.png" width="144" height="144" style="vertical-align:middle;">
   ╭──╯ . . . .
-</p>
+</center>
 
 <center>─ ཐི ⋅ ♰ ⋅ ཋྀ ─</center>
 
@@ -32,9 +32,9 @@ Feel free to c+h. As long as you're not covering me I dont have a problem with t
 <br><br>
 
 <center>╭︵‿୨ ᴏɴᴄᴇ ʏᴏᴜ ɢɪᴠᴇ ʜɪᴍ ᴇᴠᴇʀʏᴛʜɪɴɢ...</center>
-<p align="center">
+<center>
   <img src="https://i.postimg.cc/HkJjJ2cF/hahaha.png" width="900" height="375">
-</p>
+</center>
 <center>...ᴡɪʟʟ ʜᴇ ꜱᴛɪʟʟ ᴡᴀɴᴛ ʏᴏᴜ? ୧‿︵╮</center>
 
 <br><br>
@@ -56,13 +56,13 @@ If you dont know whats my problem with Ollie, or you dont know who he is at all,
 <center>─ ཐི ⋅ ♰ ⋅ ཋྀ ─</center>
 
 <!-- Przedostatnie zdjęcie (opopop.png, pomniejszone 15×) -->
-<p align="center">
-  <img src="https://i.postimg.cc/85bC8X9F/opopop.png" width="166" height="69" style="vertical-align:middle;">
-</p>
+<center>
+  <img src="https://i.postimg.cc/85bC8X9F/opopop.png" width="166" height="69">
+</center>
 
 <center>_"You were destined for me. Perhaps as a punishment."_</center>
 
 <!-- Ostatnie zdjęcie -->
-<p align="center">
+<center>
   <img src="https://i.postimg.cc/qR5hz5B2/rrrrr.png" width="900" height="375">
-</p>
+</center>
