@@ -16,9 +16,10 @@
   ╭──╯ . . . .
 </p>
 
+<p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
 <br><br>
-<p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
+
 
 <p align="center">. Please call me Witzsha/Sha .</p>
 <p align="center">17 | she/her | pl/eng</p>
