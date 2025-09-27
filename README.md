@@ -12,7 +12,7 @@
 
 <p align="center">
   . . . . ╰──╮
-  <img src="https://i.postimg.cc/fy9kYdxB/image0.png" width="144" height="144" style="vertical-align:middle;">
+  <img src="https://i.postimg.cc/fy9kYdxB/image0.png" width="77" height="77" style="vertical-align:middle;">
   ╭──╯ . . . .
 </p>
 
