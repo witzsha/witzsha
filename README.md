@@ -51,7 +51,7 @@
 
 <p align="center">𓆩♱𓆪</p>
 <p align="center">
-  People under the age of 15, countryhumans fandom and overall weirdos please do not interact.<br> <br>
+  People under the age of 15, countryhumans fandom, proshippers and MAP's please do not interact. If you are racist, homophobic, trasnphobic or any of those also stay far away from me thank you.<br> <br>
 
 </p>
 
