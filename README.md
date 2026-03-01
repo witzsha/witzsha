@@ -20,7 +20,7 @@
 <br>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=witzsha&color=blue&style=for-the-badge" alt="rats" />
+  <img src="https://komarev.com/ghpvc/?username=witzsha&color=blue&style=for-the-badge&label=rats"  />
 </p>
 <p align="center">. Please call me Witzsha/Sha .</p>
 <p align="center">17 | she/her | pl/eng</p>
