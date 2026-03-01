@@ -19,7 +19,7 @@
 
 <br>
 
-
+![Profile Views](https://komarev.com/ghpvc/?username=witzsha&label=PROFILE+VIEWS)
 <p align="center">. Please call me Witzsha/Sha .</p>
 <p align="center">17 | she/her | pl/eng</p>
 <p align="center">𓆩♱𓆪</p>
