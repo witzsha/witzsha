@@ -19,7 +19,9 @@
 
 <br>
 
- ![Profile Views](https://komarev.com/ghpvc/?username=witzsha&label=rats) 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=witzsha&color=brown&style=for-the-badge" alt="rats" />
+</p>
 <p align="center">. Please call me Witzsha/Sha .</p>
 <p align="center">17 | she/her | pl/eng</p>
 <p align="center">𓆩♱𓆪</p>
