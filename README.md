@@ -24,7 +24,7 @@
 </p>
 <p align="center">. Please call me Witzsha/Sha .</p>
 <p align="center">17 | she/her | pl/eng</p>
-I unfriend people that i dont talk to. If i unfollowed/unfriended you its most likely not personal, i just try to keep all my lists as short as possible. If you want me to add you again just let me know.
+<p align="center">I unfriend people that i dont talk to. If i unfollowed/unfriended you its most likely not personal, i just try to keep all my lists as short as possible. If you want me to add you again just let me know.
 <p align="center">𓆩♱𓆪</p>
 
 <p align="center">
