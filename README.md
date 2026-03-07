@@ -48,7 +48,7 @@
 <br>
 
 <p align="center">
-  Im an artist, bone collector, 70's fashion & music enthusiast and a professional vanderbell shipper. Really into rdr2 now, but my other interests include: Don't Starve Together, Batman Arkham, Gotham and Transformers. If youre into any of that I'd be more than happy to interact with you.<br>
+  Im an artist, taxidermy collector, 70's fashion & music enthusiast, professional vanderbell and javiarthur shipper :P. Really into rdr2 now, but my other interests include: Don't Starve Together (hmu if you want to play), Batman Arkham, Gotham and Transformers. If youre into any of that I'd be more than happy to interact with you.<br>
  
 </p>
 
