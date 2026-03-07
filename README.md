@@ -37,11 +37,11 @@
 <br>
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
-<p align="center">╭︵‿୨ ᴏɴᴄᴇ ʏᴏᴜ ɢɪᴠᴇ ʜɪᴍ ᴀʟʟ ʏᴏᴜ'ᴠᴇ ɢᴏᴛ...</p>
+<p align="center">╭︵‿୨ ...</p>
 <p align="center">
-  <img src="https://i.postimg.cc/MKK47Qrz/hahaha.png" width="600" height="250">
+  <img src="https://i.postimg.cc/bJNydTgb/IMG-0489.png" width="600" height="250">
 </p>
-<p align="center">...ᴡɪʟʟ ʜᴇ ꜱᴛɪʟʟ ᴡᴀɴᴛ ʏᴏᴜ? ୧‿︵╮</p>
+<p align="center">... ୧‿︵╮</p>
 
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
