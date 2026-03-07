@@ -39,7 +39,7 @@
 
 <p align="center">╭︵‿୨ ...</p>
 <p align="center">
-  <img src="https://i.postimg.cc/nVGW3xHG/IMG-0489.png" width="600" height="700">
+  <img src="https://i.postimg.cc/nVGW3xHG/IMG-0489.png" width="400" height="500">
 </p>
 <p align="center">... ୧‿︵╮</p>
 
