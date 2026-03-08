@@ -54,7 +54,7 @@
 
 <p align="center">𓆩♱𓆪</p>
 <p align="center">
- Proshippers, shotacons, lolicons and MAP's dni. If you fit into the basic dni criteria also dont talk to me. People under the age of 15 iwc, we can still talk and sit together but id rather not befriend you for the sake of my own comfort. <br> <br>
+ Proshippers, shotacons, lolicons and MAP's dni. If you fit into the basic dni criteria also dont talk to me. People under the age of 15 iwc, we can still talk and sit together but id rather not befriend you for the sake of my own comfort. Dutch van der Linde apologists dni too, yall pmo. If you think this man is innocent replay the game. <br> <br>
 
 </p>
 
