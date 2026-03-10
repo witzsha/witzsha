@@ -30,7 +30,7 @@
 <p align="center">
   Public chat off, if you want to interact please do that in whispers. If im afk i probably have my whispers disabled, so if you want to reach out to me please sign my ata.<br>
   If theres "no response" in my name - I wont respond. It's not personal. Im just tired, busy or not in the mood to talk. This does not apply to my close friends.<br>
-  Feel free to c+h, i love sitting with people :). If you want to sit with me as your favourite ship while afk/ot just whisper and ask!! I'll be more than happy to do so.
+  Feel free to c+h.
 </p>
 
 
