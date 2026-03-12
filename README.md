@@ -62,7 +62,7 @@
 
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
-<!-- Kolejne zdjęcie zmienione -->
+
 <p align="center">
   . . . . ╰──╮
   <img src="https://i.postimg.cc/85bC8X9F/opopop.png" width="166" height="69" style="vertical-align:middle;">
@@ -71,7 +71,7 @@
 
 <p align="center">" ʏᴏᴜ ᴡᴇʀᴇ ᴅᴇꜱᴛɪɴᴇᴅ ꜰᴏʀ ᴍᴇ. ᴘᴇʀʜᴀᴘꜱ ᴀꜱ ᴀ ᴘᴜɴɪꜱʜᴍᴇɴᴛ "</p>
 
-<!-- Ostatnie zdjęcie -->
+
 <p align="center">
   <img src="https://i.postimg.cc/qR5hz5B2/rrrrr.png" width="600" height="250">
 </p>
