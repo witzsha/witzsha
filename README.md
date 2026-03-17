@@ -28,8 +28,9 @@
 <p align="center">𓆩♱𓆪</p>
 
 <p align="center">
-  Public chat off, if you want to interact please do that in whispers. If im afk i probably have my whispers disabled, so if you want to reach out to me please sign my ata.<br>
-  If theres "no response" in my name - I wont respond. It's not personal. Im just tired, busy or not in the mood to talk. This does not apply to my close friends.<br>
+  Not looking for friends, im just here to be a part of the landscape, spectate and hang out with people that im close with.<br>
+  Public chat and whispers off. If you have anything to say to me feel free to sign my ata. Responses might be delayed.<br>
+  I like signing strawpages when im bored, I sign every drawing that I submit so that you know its from me. <br> 
   Feel free to c+h.
 </p>
 
@@ -48,7 +49,7 @@
 <br>
 
 <p align="center">
-  Im an artist, taxidermy collector, 70's fashion & music enthusiast, professional vanderbell and javiarthur shipper :P. Really into rdr2 now, but my other interests include: Don't Starve Together (hmu if you want to play), Batman Arkham, Gotham and Transformers. If youre into any of that I'd be more than happy to interact with you.<br>
+  Im an artist, taxidermy collector, 70's fashion & music enthusiast. Really into rdr2 now, but my other interests include: Don't Starve Together, Batman Arkham, Gotham and Transformers. <br>
  
 </p>
 
