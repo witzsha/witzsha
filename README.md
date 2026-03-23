@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://i.postimg.cc/C5k156nv/rarara.png" width="600" height="250">
+  <img src="https://i.postimg.cc/JhKv2Dnx/B1B27890-68BD-4175-88B9-C8904AB0D59D.png" width="600" height="300">
 </p>
 
 <p align="center">
@@ -11,7 +11,7 @@
 
 <p align="center">
   . . . . ╰──╮
-  <img src="https://i.postimg.cc/fy9kYdxB/image0.png" width="77" height="77" style="vertical-align:middle;">
+  <img src="https://i.postimg.cc/1zybBc93/78CF3A83-9E09-454F-8BF9-91B0A2B4EFB6.png" width="77" height="77" style="vertical-align:middle;">
   ╭──╯ . . . .
 </p>
 
@@ -20,7 +20,7 @@
 <br>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=witzsha&color=655748&style=flat&label=rats+♡"  />
+  <img src="https://komarev.com/ghpvc/?username=witzsha&color=94562E&style=flat&label=rats+♡"  />
 </p>
 <p align="center">. Please call me Witzsha/Sha .</p>
 <p align="center">17 | she/her | pl/eng</p>
@@ -38,11 +38,11 @@
 <br>
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
-<p align="center">╭︵‿୨ ...</p>
+<p align="center">╭︵‿୨ ɪ ᴄᴏɴꜰᴜꜱᴇ ɪɴꜱᴛɪɴᴄᴛ ꜰᴏʀ ᴅᴇꜱɪʀᴇ...</p>
 <p align="center">
-  <img src="https://i.postimg.cc/nVGW3xHG/IMG-0489.png" width="500" height="600">
+  <img src="https://i.postimg.cc/rw9gjBn7/IMG-0579.png" width="500" height="600">
 </p><br><p align="center">𝘢𝘳𝘵 𝘣𝘺 𝘮𝘦<br></p>
-<p align="center">... ୧‿︵╮</p>
+<p align="center">...ɪꜱɴ'ᴛ ʙɪᴛᴇ ᴀʟꜱᴏ ᴛᴏᴜᴄʜ? ୧‿︵╮</p>
 
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
 
@@ -66,7 +66,7 @@
 
 <p align="center">
   . . . . ╰──╮
-  <img src="https://i.postimg.cc/85bC8X9F/opopop.png" width="166" height="69" style="vertical-align:middle;">
+  <img src="https://i.postimg.cc/q7pWwXkM/D452B8B1-6EA5-4C57-98E4-5063E747400C.png" width="70" height="69" style="vertical-align:middle;">
   ╭──╯ . . . .
 </p>
 
@@ -74,5 +74,5 @@
 
 
 <p align="center">
-  <img src="https://i.postimg.cc/qR5hz5B2/rrrrr.png" width="600" height="250">
+  <img src="https://i.postimg.cc/cJT2bgH7/IMG-0574.png" width="600" height="300">
 </p>
