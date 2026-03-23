@@ -28,7 +28,7 @@
 <p align="center">𓆩♱𓆪</p>
 
 <p align="center">
-  Not looking for friends, im just here to be a part of the landscape, spectate and hang out with people that im close with.<br>
+  Not actively looking for friends, im just here to be a part of the landscape, spectate and hang out with people that im close with. That does not mean you can't come along, just dont expect me to initiate interactions :) <br>
   Public chat and whispers off. If you have anything to say to me feel free to sign my ata. Responses might be delayed.<br>
   I like signing strawpages when im bored, I sign every drawing that I submit so that you know its from me. <br> 
   Feel free to c+h.
