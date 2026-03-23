@@ -49,7 +49,7 @@
 <br>
 
 <p align="center">
-  Im an artist, taxidermy collector, 70's fashion & music enthusiast. Really into rdr2 now, but my other interests include: Don't Starve Together, Batman Arkham, Gotham and Transformers. <br>
+  Im an artist, taxidermy collector, 70's fashion & music enthusiast. Really into rdr1/2 now, but my other interests include: Don't Starve Together, Batman Arkham, Gotham and Transformers. <br>
  
 </p>
 
