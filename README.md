@@ -41,7 +41,7 @@
 <p align="center">╭︵‿୨ ɪ ᴄᴏɴꜰᴜꜱᴇ ɪɴꜱᴛɪɴᴄᴛ ꜰᴏʀ ᴅᴇꜱɪʀᴇ...</p>
 <p align="center">
   <img src="https://i.postimg.cc/5tCW1vy3/IMG-0601.png" width="500" height="600">
-</p><br><p align="center">sign my ata or Javier dies <br>𝘢𝘳𝘵 𝘣𝘺 𝘮𝘦<br></p>
+</p><br><p align="center">𝘢𝘳𝘵 𝘣𝘺 𝘮𝘦<br>sign my ata or Javier dies <br></p>
 <p align="center">...ɪꜱɴ'ᴛ ʙɪᴛᴇ ᴀʟꜱᴏ ᴛᴏᴜᴄʜ? ୧‿︵╮</p>
 
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
