@@ -31,7 +31,7 @@
   Not actively looking for friends, im just here to be a part of the landscape, spectate and hang out with people that im close with. <br>
   Public chat and whispers off. If you have anything to say to me feel free to sign my ata. Responses might be delayed.<br>
   I like signing strawpages when im bored, I sign every drawing that I submit so that you know its from me. <br> 
-  Feel free to c+h.
+  Feel free to c+h if im alone. When im with friends id rather be left just with them.
 </p>
 
 
