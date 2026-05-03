@@ -10,9 +10,9 @@
 
 
 <p align="center">
-  . . . . ╰──╮
+   . . . ╰──╮
   <img src="https://i.postimg.cc/1zybBc93/78CF3A83-9E09-454F-8BF9-91B0A2B4EFB6.png" width="77" height="77" style="vertical-align:middle;">
-  ╭──╯ . . . .
+  ╭──╯ . . . 
 </p>
 
 <p align="center">─ ཐི ⋅ ♰ ⋅ ཋྀ ─</p>
