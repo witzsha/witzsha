@@ -23,7 +23,7 @@
   <img src="https://komarev.com/ghpvc/?username=witzsha&color=94562E&style=flat&label=rats+♡"  />
 </p>
 <p align="center">. Please call me Witzsha/Sha .</p>
-<p align="center">18 | she/her | pl/eng</p>
+<p align="center">18 | she/her </p>
 <p align="center">I unfriend people that i dont talk to. If i unfollowed/unfriended you its most likely not personal, i just try to keep all my lists as short as possible. If you want me to add you again let me know.
 <p align="center">𓆩♱𓆪</p>
 
@@ -55,7 +55,7 @@
 
 <p align="center">𓆩♱𓆪</p>
 <p align="center">
- Proshippers, shotacons, lolicons and MAP's dni. If you fit into the basic dni criteria also dont talk to me. People under the age of 15 iwc, we can still talk and sit together but id rather not befriend you for the sake of my own comfort. Dutch van der Linde apologists dni too, yall pmo. If you think this man is innocent replay the game. <br> <br>
+ Proshippers, shotacons, lolicons and MAP's dni, if you ship real people and/or selfship with real people also dni. Non-sharing selfshippers iwc, i find some of you REALLY weird. If you fit into the basic dni criteria please dont talk to me thx. Im not really fond of people who idolize celebrities, if you're someone who does that, please keep it to yourself around me. People under the age of 15 iwc, we can still talk and sit together but id rather not befriend you for the sake of my own comfort. Dutch van der Linde apologists (NOT his fans, i like him too, just acknowdlege that hes not a good person lol) limit interactions too, yall pmo. If you think this man is innocent replay the game. <br> <br>
 
 </p>
 
